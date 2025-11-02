@@ -5,4 +5,8 @@
 
 ![More Invisible cities](https://github.com/user-attachments/assets/055ff295-5264-4cb7-b9ce-0c6f27d73da4)
 
+Louis Bourdon created synthetic cities, which I also think is a good job, inspiring me and others to continue the "Architectural Journey" following the idea that the constant is to change.
+
+
+https://github.com/user-attachments/assets/c4b43bc7-c1a5-4fd8-82a9-99f131725fc2
 
