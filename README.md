@@ -10,3 +10,5 @@ Louis Bourdon created synthetic cities, which I also think is a good job, inspir
 
 https://github.com/user-attachments/assets/c4b43bc7-c1a5-4fd8-82a9-99f131725fc2
 
+![FrankGehrywithatwist (1)](https://github.com/user-attachments/assets/0a45fbd1-a41f-48c4-9469-18cc7c88d41e)
+![FrankGehrywithatwist2 (1)](https://github.com/user-attachments/assets/ddc51732-7f47-4216-aaac-55f4a560e3ea)
