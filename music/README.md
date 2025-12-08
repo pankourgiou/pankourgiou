@@ -28,32 +28,32 @@ https://github.com/user-attachments/assets/c4b43bc7-c1a5-4fd8-82a9-99f131725fc2
     <source src="music/L.Dusty.Delta.Echoes.mp3" type="audio/mpeg">
   </audio>
 
-  <p><strong>Song 2</strong></p>
+  <p><strong>Song 3</strong></p>
   <audio controls>
     <source src="music/L.Delta.Memory.Lane.mp3" type="audio/mpeg">
   </audio>
 
-  <p><strong>Song 2</strong></p>
+  <p><strong>Song 4</strong></p>
   <audio controls>
     <source src="music/L.blues.of.the.river.delta.mp3" type="audio/mpeg">
   </audio>
 
-  <p><strong>Song 2</strong></p>
+  <p><strong>Song 5</strong></p>
   <audio controls>
     <source src="music/L.blues.of.the.river.delta.2.mp3" type="audio/mpeg">
   </audio>
 
-  <p><strong>Song 2</strong></p>
+  <p><strong>Song 6</strong></p>
   <audio controls>
     <source src="music/L.blues.of.the.river.delta3.mp3" type="audio/mpeg">
   </audio>
 
-  <p><strong>Song 2</strong></p>
+  <p><strong>Song 7</strong></p>
   <audio controls>
     <source src="music/L.Blues.of.the.river.delta4.mp3" type="audio/mpeg">
   </audio>
 
-  <p><strong>Song 2</strong></p>
+  <p><strong>Song 8</strong></p>
   <audio controls>
     <source src="music/L.Blues.of.the.river.delta.5.mp3" type="audio/mpeg">
   </audio>
