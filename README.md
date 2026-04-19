@@ -1,3 +1,6 @@
+For reasons of task gamification and simplification let's use the Deep Purple Whoosh! pass-phrase.
+<img width="225" height="224" alt="whoosh!" src="https://github.com/user-attachments/assets/55811f4f-36ad-49f8-bd52-f9e4264fcb37" />
+
 <img width="166" height="242" alt="Tolkien_book" src="https://github.com/user-attachments/assets/113eb61f-c363-419d-b374-c721be6835bc" />
 I read this book(which is Tolkien's personal notes) which provides full evidence that Tolkien performed calculations to create the languages AND the (epic)books he created. If you haven't read it yet I recommend it-->of course it is importand to read the whole Tolkien bibliography. Our whole concept here is based on those ideas I'm honest with you. 
 <img width="172" height="58" alt="cipher (32)" src="https://github.com/user-attachments/assets/06b5e182-11ee-421b-96a2-ae6f8cae7429" />
