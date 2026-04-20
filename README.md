@@ -1,3 +1,4 @@
+Do not make Truth seem uglier make your lives more interesting--->short example: movies for Aliens winning 4 Oscars or sometimes less Lord of the Rings wins too many (12) 
 For reasons of task gamification and simplification let's use the Deep Purple Whoosh! pass-phrase.
 <img width="225" height="224" alt="whoosh!" src="https://github.com/user-attachments/assets/55811f4f-36ad-49f8-bd52-f9e4264fcb37" />
 
