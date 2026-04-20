@@ -28,3 +28,6 @@ A conclusion with-I think- brave enough and big-serious thoughts and self-critis
 <img width="398" height="663" alt="Brief Conclusion standard galactic" src="https://github.com/user-attachments/assets/6d518a2d-812d-4dab-b45e-8d00cb3c0616" />
 <img width="1104" height="8932" alt="Brief Conclusion" src="https://github.com/user-attachments/assets/3d58a8fd-c598-426d-bef7-ee453561710a" />
 
+I did too many "circles" to find this..
+https://base64.guru/converter/encode/image
+
