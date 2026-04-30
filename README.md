@@ -1,4 +1,5 @@
-Φέρτο!
+Φέρ'το!
+<img width="1104" height="490" alt="Energy_cipher" src="https://github.com/user-attachments/assets/a9628cc6-9741-45a6-b6c5-d7d9c0ad13e3" />
 <img width="1320" height="770" alt="Quantum_Budges" src="https://github.com/user-attachments/assets/4d69589a-13a0-4b0f-b150-45f3a216d198" />
 After 41 years, and since I am 41 years having more experience I came to the conclusion that aliens do exist, but 51% possibility(maybe even more)they have their own kind of problems and maybe we should be too cautious with them...second conclusion is that Christian God may exist too but, he might have different problems than us, and I'm pretty sure he has some serious problems..so what's left is taht we need to see the beauty to other people inside and outside beauty, to change our optics/view and this at least for me can indeed happen following the nature flow of life and nature itself. For example I can imagine beauty to the people around me like as if they are elves
 Do not make Truth seem uglier make your lives more interesting--->short example: movies for Aliens winning 4 Oscars or sometimes less Lord of the Rings wins too many (12) 
