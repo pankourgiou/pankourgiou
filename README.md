@@ -48,6 +48,10 @@ https://github.com/user-attachments/assets/5008bd3e-4ced-499f-94d2-35629da00a6e
 <img width="1104" height="724" alt="common_wisdom_popular_wisdom_people" src="https://github.com/user-attachments/assets/3515b30b-4356-4291-9f2b-cda39f2dd0e2" />
 με διπλή μετάφραση:τη δυσκολη δουλειά την κάνουν οι Σίσυφοι άνθρωποι που ξεχωρίζουν για τη λαϊκή σοφία και όχι για την υψηλή φιλοσοφία.
 <img width="1086" height="711" alt="λαϊκή σοφία" src="https://github.com/user-attachments/assets/54777625-7084-49e0-b6fc-601bbeb7ea29" />
+ή:
+Die schwierigste Arbeit wird von den Sisyphus-Leuten verrichtet, also von Menschen, die sich durch ihre allgemeine/volkstümliche Weisheit auszeichnen und nicht von hochintelligenten Intellektuellen.
+ή
+Le travail le plus difficile est accompli par les gens de Sisyphe, c'est-à-dire les personnes reconnues pour leur sagesse populaire et non les intellectuels dotés d'une grande sagesse.
 
 
 
