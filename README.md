@@ -52,8 +52,8 @@ https://github.com/user-attachments/assets/5008bd3e-4ced-499f-94d2-35629da00a6e
 Die schwierigste Arbeit wird von den Sisyphus-Leuten verrichtet, also von Menschen, die sich durch ihre allgemeine/volkstümliche Weisheit auszeichnen und nicht von hochintelligenten Intellektuellen.
 ή
 Le travail le plus difficile est accompli par les gens de Sisyphe, c'est-à-dire les personnes reconnues pour leur sagesse populaire et non les intellectuels dotés d'une grande sagesse.
-
-
+ή
+<img width="1104" height="800" alt="common_wisdom_popular_wisdom_people (2)" src="https://github.com/user-attachments/assets/b988e84e-4e0e-4a59-8b84-b0e4f4174cd2" />
 
 
 
