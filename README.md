@@ -41,4 +41,10 @@ Yet i've also read Stella Maris and the conclusion I jumped upon after reading i
 Finally, much talking about a.i. lately-->a.i. is many things however and this happens due to asian languages like chinese and japanese too/example 爱('Ai) is the expression of love both in chinese and in japanese. A.i. is about Artificial Intelligenece..a pc is many times about combining things and this means those who express their anti-a.i. emotions either talk against the intelligence part of A.I. or against the (love expressing part of a.i.-->爱('Ai))or both!! The whole computing science is huge now I use a.i. later I'll use encryption more!!I really think it is not good to underestimate the power of Intelligence/Artificial or not...
 To reach a conclusion my next step in programming journey will be philosophizing on Plato's republic through audiobook listenning (you can find here https://www.youtube.com/watch?v=CqGsg01ycpk&t=5001s) which was my original target on the first place yet due to lack of many audiobooks I couldn't do this(philosophizing) the way I wanted to. Nowadays there are many audiobooks so you do not like reading ok! listen an audiobook better!
 
+finally being inspired by Latin hand using enumerating technique I said i'll make one on my own!! and voila! be playful with it! it's not like I am gonna give you a bad grade or something..it's experimental in every case...nobody will tell you first class that programming is seriously diy...seriously..but it is! you want to feel educated you must be smart...finally I will try for a game changing/trend-agenda changing from a.i.-to-encryption tools!! it's a fascinating field- with endless possibilities that people ignore many times! 
+
+https://github.com/user-attachments/assets/5008bd3e-4ced-499f-94d2-35629da00a6e
+
+
+
 
