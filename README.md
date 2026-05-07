@@ -55,6 +55,8 @@ Le travail le plus difficile est accompli par les gens de Sisyphe, c'est-à-dire
 ή
 <img width="1104" height="800" alt="common_wisdom_popular_wisdom_people (2)" src="https://github.com/user-attachments/assets/b988e84e-4e0e-4a59-8b84-b0e4f4174cd2" />
 
+<img width="792" height="1532" alt="Σισυφοι" src="https://github.com/user-attachments/assets/d3fbb401-db68-4207-81ae-2f846705ce3d" />
+
 
 
 
