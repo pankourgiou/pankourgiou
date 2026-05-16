@@ -56,6 +56,14 @@ Le travail le plus difficile est accompli par les gens de Sisyphe, c'est-à-dire
 <img width="1104" height="800" alt="common_wisdom_popular_wisdom_people (2)" src="https://github.com/user-attachments/assets/b988e84e-4e0e-4a59-8b84-b0e4f4174cd2" />
 
 <img width="792" height="1532" alt="Σισυφοι" src="https://github.com/user-attachments/assets/d3fbb401-db68-4207-81ae-2f846705ce3d" />
+My next steps include also:
+https://www.youtube.com/watch?v=no40LPuVmwI
+and
+https://www.youtube.com/watch?v=rqqjU7zCI10
+if "you are bored reading" listen a nice audiobook...better than hip-hop rap and even tv->going dump and dumper everyday.
+My road here is the road of disarming truth...malfunctional feelings(and programs) will fade out eventually as well as lies..truth is the tool that disarms.
+<img width="1104" height="1712" alt="the_limits_of_the_leader" src="https://github.com/user-attachments/assets/7251cbe7-6037-4795-91cb-2b5ab74cebbb" />
+
 
 
 
