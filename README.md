@@ -64,6 +64,8 @@ if "you are bored reading" listen a nice audiobook...better than hip-hop rap and
 My road here is the road of disarming truth...malfunctional feelings(and programs) will fade out eventually as well as lies..truth is the tool that disarms.
 <img width="1104" height="1712" alt="the_limits_of_the_leader" src="https://github.com/user-attachments/assets/7251cbe7-6037-4795-91cb-2b5ab74cebbb" />
 
+check also this webpage it's importand! https://www.commarts.com/exhibit/sos-oceano-campaign?fbclid=IwY2xjawR1GJtleHRuA2FlbQIxMABicmlkETBMTXZKUGF3UGE1azYySzEwc3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHrc7vF8fL47Y2K9BngY9YaZT0o9p6gt0LhkV1R1XFX6uLlLMJZV8h86KK9MM_aem_GubRt1Bg17ctVes4KSBkkg
+
 
 
 
