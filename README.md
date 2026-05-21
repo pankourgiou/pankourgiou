@@ -1,5 +1,6 @@
-simple hello world message
-<img width="1055" height="205" alt="simple hello world" src="https://github.com/user-attachments/assets/c328b128-c56d-4505-9c03-d449aace9fad" />
+simple hello message
+<img width="715" height="120" alt="simple hello" src="https://github.com/user-attachments/assets/18c81ba1-f91f-4b60-b765-fda493ec1d56" />
+
 Φέρ'το!
 <img width="1104" height="490" alt="Energy_cipher" src="https://github.com/user-attachments/assets/a9628cc6-9741-45a6-b6c5-d7d9c0ad13e3" />
 <img width="1320" height="770" alt="Quantum_Budges" src="https://github.com/user-attachments/assets/4d69589a-13a0-4b0f-b150-45f3a216d198" />
