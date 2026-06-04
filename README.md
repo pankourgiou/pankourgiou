@@ -74,6 +74,10 @@ their archive must be big...they leak it little by little though...
 
 <img width="1072" height="1340" alt="stay_united" src="https://github.com/user-attachments/assets/0c30e23b-28f0-436d-a0bd-b72163a10f10" />
 
+plus some valueable lessons:
+
+https://www.youtube.com/watch?v=apep23vk4gQ
+
 
 
 
