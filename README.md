@@ -1,3 +1,4 @@
+<img width="714" height="922" alt="Money_if_any_gathered_from_the_package_will_go_to_people_in_need" src="https://github.com/user-attachments/assets/cbc1bbe0-2a67-4943-8422-cdbf5e17c51f" />
 <img width="1055" height="290" alt="smile" src="https://github.com/user-attachments/assets/a9cf16c0-2019-4369-a9e7-3cd3dee70d82" />
 simple hello message
 <img width="715" height="120" alt="simple hello" src="https://github.com/user-attachments/assets/18c81ba1-f91f-4b60-b765-fda493ec1d56" />
