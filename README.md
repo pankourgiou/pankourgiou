@@ -1,3 +1,7 @@
+
+
+https://github.com/user-attachments/assets/9ca65648-289f-472b-95df-2909917a1270
+
 <img width="714" height="922" alt="Money_if_any_gathered_from_the_package_will_go_to_people_in_need" src="https://github.com/user-attachments/assets/cbc1bbe0-2a67-4943-8422-cdbf5e17c51f" />
 //This is a swift comment-->Support people who are in need..show them your good feelings..There is no effect in life without it's reasonable/justified exigisis-->Schopenhauer https://galilee.gr/ https://www.hamogelo.gr/
 <img width="1055" height="290" alt="smile" src="https://github.com/user-attachments/assets/a9cf16c0-2019-4369-a9e7-3cd3dee70d82" />
@@ -84,8 +88,11 @@ https://www.youtube.com/watch?v=apep23vk4gQ
 
 🤍 Βανίλια/🌹 Τριαντάφυλλο🍁 Κανέλα🤍 Βανίλια🌹 Τριαντάφυλλο🌊 Θαλάσσια αύρα🍁 Κανέλα🌊 Θαλάσσια αύρα🧊 Jean Paul Gaultier🍋 Λεμόνι🍁 Κανέλα🤍 Βανίλια/🧊 Jean Paul Gaultier🌫️ Άοσμο🌳 Πεύκο🌺 Ίριδα🧊 Jean Paul Gaultier🤍 Βανίλια🧊 Jean Paul Gaultier🌫️ Άοσμο/🍋 Λεμόνι🔵 Azzaro Chrome🌲 Κέδρος (Cedar)🌫️ Άοσμο🔵 Azzaro Chrome/🤍 Βανίλια/🌫️ Άοσμο📖 Παλιό βιβλίο📖 Παλιό βιβλίο🌫️ Άοσμο🌹 Τριαντάφυλλο🤍 Βανίλια/🌼 Jasmine🌫️ Άοσμο/🌿 Μέντα🍁 Κανέλα🍋 Λεμόνι🌿 Μέντα🍋 Λεμόνι🔵 Azzaro Chrome/🌲 Κέδρος (Cedar)🌫️ Άοσμο/🖤 Musk🌿 Μέντα🌊 Θαλάσσια αύρα🍁 Κανέλα🌊 Θαλάσσια αύρα🌺 Ίριδα🖤 Musk🍋 Λεμόνι/🌲 Κέδρος (Cedar)🌫️ Άοσμο/🌫️ Άοσμο📖 Παλιό βιβλίο📖 Παλιό βιβλίο🌫️ Άοσμο🏺 Chanel No5🌊 Θαλάσσια αύρα🌺 Ίριδα🖤 Musk🍋 Λεμόνι/🌊 Θαλάσσια αύρα🌿 Μέντα⚙️ Μεταλλική μυρωδιά🌵 Dior Sauvage/🍫 Κακάο🌫️ Άοσμο🔵 Azzaro Chrome/🌊 Θαλάσσια αύρα🔵 Azzaro Chrome/🍋 Λεμόνι🌿 Μέντα🌊 Θαλάσσια αύρα🌳 Πεύκο🍋 Λεμόνι🌵 Dior Sauvage/🌫️ Άοσμο📖 Παλιό βιβλίο📖 Παλιό βιβλίο🌫️ Άοσμο🍊 Πορτοκάλι🌊 Θαλάσσια αύρα🌺 Ίριδα🌲 Κέδρος (Cedar)/🌫️ Άοσμο📖 Παλιό βιβλίο📖 Παλιό βιβλίο🌫️ Άοσμο/🌿 Μέντα🍁 Κανέλα🌊 Θαλάσσια αύρα🌵 Dior Sauvage/🧊 Jean Paul Gaultier🌊 Θαλάσσια αύρα/🍫 Κακάο🌫️ Άοσμο📖 Παλιό βιβλίο🌺 Ίριδα🧊 Jean Paul Gaultier🍋 Λεμόνι🍁 Κανέλα🌊 Θαλάσσια αύρα
 
-Βάζω Ευκλείδια-->κάστράκι στην άμμο να φτιάξεις πρέπει να ξέρεις να φτιάχνεις κύκλο...και επειδή δεν ψήνομαι για διαπραγμάτευση σας το λέω-->γιατί έτσι μου αρέσει!
-https://www.youtube.com/watch?v=c3Tg5GX9jOg
+
+
+https://github.com/user-attachments/assets/9ab1fc86-2145-4336-a845-a3b705da43b9
+
+
 
 
 
