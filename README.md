@@ -1,3 +1,4 @@
+1)If you use an a.i. chatbot...On the Chatgpt/Claude or whatever else a.i. chatbot you use use also "Easter" eggs for better readability and for fun..
 <img width="714" height="922" alt="Money_if_any_gathered_from_the_package_will_go_to_people_in_need" src="https://github.com/user-attachments/assets/cbc1bbe0-2a67-4943-8422-cdbf5e17c51f" />
 //This is a swift comment-->Support people who are in need..show them your good feelings..There is no effect in life without it's reasonable/justified exigisis-->Schopenhauer https://galilee.gr/ https://www.hamogelo.gr/
 <img width="1055" height="290" alt="smile" src="https://github.com/user-attachments/assets/a9cf16c0-2019-4369-a9e7-3cd3dee70d82" />
