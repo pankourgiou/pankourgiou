@@ -89,7 +89,7 @@ https://www.youtube.com/watch?v=apep23vk4gQ
 
 
 https://github.com/user-attachments/assets/9ab1fc86-2145-4336-a845-a3b705da43b9
-ο Πεσσόα έπινε πάντα μόνο:"Ντραμποζνίτσου κόλα" χιουμαράκι
+ο Πεσσόα έπινε πάντα μόνο:"Ντραμποζνίτσου κόλα" χιουμοράκι
 <img width="1024" height="1536" alt="Pessoa" src="https://github.com/user-attachments/assets/b97e9fb9-c3c7-42e7-993d-f64430fae6a6" />
 
 
