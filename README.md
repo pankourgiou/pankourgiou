@@ -1,3 +1,4 @@
+<img width="1536" height="1024" alt="Thegreatescape" src="https://github.com/user-attachments/assets/da8953fb-6e04-45de-8da9-8549eb79518f" />
 <img width="512" height="640" alt="naites" src="https://github.com/user-attachments/assets/632152a4-6438-4272-bb47-bc1cccfefdef" />
 
 1)Ευχαριστώ πολύ τους κατά-γενική ομολογία γρουσούζηδες skai.gr και in.gr για το θεάρεστο έργο τους να γκαντεμιάζουν ότι κινείται από εδώ και μπρός https://www.naftemporiki.gr/ μόνο. Πολύ πιό σοβαρή/εγκυρη ενημέρωση.
