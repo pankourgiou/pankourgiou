@@ -1,10 +1,11 @@
+1)Someone reaching this page might think why is this person writing/creating all those languages? the answer is simple I wanted to create! i like poetry and writing/thinking poetically and I really come to realize Greeks have to become a nation of thinkers/poetors/philosophers
 <img width="217" height="233" alt="Zeit" src="https://github.com/user-attachments/assets/e098a1b9-2997-4fbc-a493-f8ee5b6c963d" />
 Βάζω Schopenhauer στον Άσσο για να κρατήσουμε το 0->η μεγάλη απόδραση των 11->Jesus παγκο/αλλαγή στο 85'
 <img width="1536" height="1024" alt="Thegreatescape" src="https://github.com/user-attachments/assets/da8953fb-6e04-45de-8da9-8549eb79518f" />
 <img width="512" height="640" alt="naites" src="https://github.com/user-attachments/assets/632152a4-6438-4272-bb47-bc1cccfefdef" />
 
-1)Ευχαριστώ πολύ τους κατά-γενική ομολογία γρουσούζηδες skai.gr και in.gr για το θεάρεστο έργο τους να γκαντεμιάζουν ότι κινείται από εδώ και μπρός https://www.naftemporiki.gr/ μόνο. Πολύ πιό σοβαρή/εγκυρη ενημέρωση.
-2)If you use an a.i. chatbot...On the Chatgpt/Claude or whatever else a.i. chatbot you use use also "Easter" eggs for better readability and for fun..
+2)Ευχαριστώ πολύ τους κατά-γενική ομολογία γρουσούζηδες skai.gr και in.gr για το θεάρεστο έργο τους να γκαντεμιάζουν ότι κινείται από εδώ και μπρός https://www.naftemporiki.gr/ μόνο. Πολύ πιό σοβαρή/εγκυρη ενημέρωση.
+3)If you use an a.i. chatbot...On the Chatgpt/Claude or whatever else a.i. chatbot you use use also "Easter" eggs for better readability and for fun..
 <img width="714" height="922" alt="Money_if_any_gathered_from_the_package_will_go_to_people_in_need" src="https://github.com/user-attachments/assets/cbc1bbe0-2a67-4943-8422-cdbf5e17c51f" />
 //This is a swift comment-->Support people who are in need..show them your good feelings..There is no effect in life without it's reasonable/justified exigisis-->Schopenhauer https://galilee.gr/ https://www.hamogelo.gr/
 <img width="1055" height="290" alt="smile" src="https://github.com/user-attachments/assets/a9cf16c0-2019-4369-a9e7-3cd3dee70d82" />
