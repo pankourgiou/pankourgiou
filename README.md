@@ -1,4 +1,4 @@
-https://www.youtube.com/watch?v=y-A1KBI-B8c
+https://www.youtube.com/watch?v=y-A1KBI-B8c    https://www.youtube.com/watch?v=qWeY8h4BXao
 1)Someone reaching this page might think why is this person writing/creating all those languages? the answer is simple I wanted to create! i like poetry and writing/thinking poetically and I really come to realize Greeks have to become a nation of thinkers/poetors/philosophers
 <img width="217" height="233" alt="Zeit" src="https://github.com/user-attachments/assets/e098a1b9-2997-4fbc-a493-f8ee5b6c963d" />
 Βάζω Schopenhauer στον Άσσο για να κρατήσουμε το 0->η μεγάλη απόδραση των 11->Jesus παγκο/αλλαγή στο 85'
