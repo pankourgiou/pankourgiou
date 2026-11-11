@@ -1,3 +1,5 @@
+"Do we have the right to create life?
+And do we have the right to take it?"- Ayreon...the answer maybe no in both cases so 1. how do we walk this path? 2. If in the future there will be heavy casualties..which there will be..there must be a footprint..fingerprint..i mean humans were here...and the answer to this will lie upon geyger radiosequencers on grass..everything will be infected obviously..it already is but we say : ahh fish from fukusima..?good!..no it isn't.
 https://www.youtube.com/watch?v=y-A1KBI-B8c    https://www.youtube.com/watch?v=qWeY8h4BXao   + see disclosure day!!
 1)Someone reaching this page might think why is this person writing/creating all those languages? the answer is simple I wanted to create! i like poetry and writing/thinking poetically and I really come to realize Greeks have to become a nation of thinkers/poetors/philosophers
 <img width="217" height="233" alt="Zeit" src="https://github.com/user-attachments/assets/e098a1b9-2997-4fbc-a493-f8ee5b6c963d" />
